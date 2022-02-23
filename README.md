@@ -1,4 +1,4 @@
-# verou-3-how-to-ask-questions-Jombojo and Dery
+# verou-3-how-to-ask-questions-Dante  and Dery
 Main:
 Use a precise and with precise information title
 What is the problem
